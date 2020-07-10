@@ -1,6 +1,4 @@
-**
 # Hi everyone 👋🏼
-**
 
 ## *🌱 I’m currently learning but I will like to collaborate in diferents projects*
 
